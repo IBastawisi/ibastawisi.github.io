@@ -1,1 +1,0 @@
-# ibastawisi.github.io
